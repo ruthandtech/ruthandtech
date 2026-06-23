@@ -38,3 +38,9 @@ Currently leading Generative AI initiatives at SAS where I build production AI c
 - All Things Open AI Keynote
 - LF AI & Data
 - Conference Talks
+
+
+🤝 Let's Connect!
+
+🔗 Website: https://www.ruthakintunde.com/
+💼 LinkedIn: https://www.linkedin.com/in/ruth-akintunde-okoilu/
