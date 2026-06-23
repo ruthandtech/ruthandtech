@@ -42,5 +42,5 @@ Currently leading Generative AI initiatives at SAS where I build production AI c
 
 🤝 Let's Connect!
 
-🔗 Website: https://www.ruthakintunde.com/
-💼 LinkedIn: https://www.linkedin.com/in/ruth-akintunde-okoilu/
+- 🔗 Website: https://www.ruthakintunde.com/
+- 💼 LinkedIn: https://www.linkedin.com/in/ruth-akintunde-okoilu/
